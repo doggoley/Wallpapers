@@ -1,4 +1,4 @@
-## Wallpapers
+# Wallpapers
 
-A collection of dumb wallpapers from 4chan and WallHaven, spamming across a few years.
-Most of them are shit, don't bother downloading.
+A collection of smart wallpapers from Reddit and WallHaven, spanning across a few years.
+Most of them are great, so do bother downloading.
